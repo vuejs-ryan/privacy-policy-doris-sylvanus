@@ -1,12 +1,12 @@
 **Privacy Policy**
 
-Simpeldevelopment built the Antrian Online RSA St. Khadijah Pinrang app as a Free app. This SERVICE is provided by Simpeldevelopment at no cost and is intended for use as is.
+Simpeldevelopment built the Antrian Online RSUD dr.Doris Sylvanus app as a Free app. This SERVICE is provided by Simpeldevelopment at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
 Our service is made without any connection with the local government and its use is not related to the local government. The information you store is not used for local government purposes and only for application usage purposes and improving the Service. I will not use or share your information with anyone except as described in this Privacy Policy
 
-The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which are accessible at Antrian Online RSA St. Khadijah Pinrang unless otherwise defined in this Privacy Policy.
+The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which are accessible at Antrian Online RSUD dr.Doris Sylvanus unless otherwise defined in this Privacy Policy.
 
 **Information Collection and Use**
 
